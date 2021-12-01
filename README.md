@@ -1,6 +1,6 @@
 ### 👋 Hi, I’m Sanjeev Kumar
 ---
-- 👀 I’m interested in Coding, Sleeping, Watching and Pyaling Cricket
+- 👀 I’m interested in Coding, Sleeping, Watching and Playing Cricket
 - 🌱 I’m currently learning everything 😀
 - 💞️ I’m looking to collaborate with other content creators
 
